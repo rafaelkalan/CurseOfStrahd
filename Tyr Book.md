@@ -55,7 +55,7 @@ ___
 
 ## Tyr Rite
 >
->![rite](https://fontmeme.com/temporary/428e2980e1cefdbca873809e73173dcd.png)
+>![rite](https://fontmeme.com/temporary/3d8b4a801aa72cd3abcca00d60c11b9d.png)
 >
 > # Common translation
 > ### Hail to the *One-armed God*!
