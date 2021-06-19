@@ -1,8 +1,7 @@
 # **Tyr, God of Justice**
 
-### The Terrible, the One-armed, Tyr the Terrible, Tyr the One-armed, the Wounded Tyr, the Crippled God, the Blind Man, the Blind Tyr, the Lord of Justice — all these names speak of the nature of the god of justice![Tyr](https://static.wikia.nocookie.net/forgottenrealms/images/2/28/Tyr.jpg/revision/latest?cb=20210429131410) 
-### Tyr is a noble warrior, without a right hand, which he lost because of the brave sacrifice and with a blindfold on his eyes as a sign of blindness. 
-
+## ***The Terrible, The One-armed, The Wounded, The Crippled God, The Blind Man - all these names speak of the nature of Tyr, the god of justice*** - all these names speak of ***TYR*** the nature of the god of justice![Tyr](https://static.wikia.nocookie.net/forgottenrealms/images/2/28/Tyr.jpg/revision/latest?cb=20210429131410) 
+## Tyr is portrayed to many as a physical manifestation of justice itself. His missing right hand shows that doing the right thing can come at a great price. His wounded eyes show that justice is blind, we must follow its path even if we don't fully understand why.
 ___
 
 ## **Tyr Creed**
@@ -41,7 +40,7 @@ ___
 >![SwornEnemy](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS1AlPyXj4C_cvv51NgvSUvMeTVhr5RM-zFT2spciSh2m8vItinSHnAneG5ULBa2zooy-Q&usqp=CAU)
 ___
 
-## **Tyrrants Believes**
+## **Tyrrants Beliefs**
 
 > *We tyrrans se the world in black-and-white morality and want the world to be cleansed of its lawlessness and chaos.*
 >
@@ -53,3 +52,45 @@ ___
 >>
 >> Priests of Tyr wore blue and purple robes, with a white sash and left-handed glove. On their right hands, priests wore black gloves to symbolize the loss of Tyr's hand
 >> Many knightly orders are dedicated to Tyr, for example, the Knights of Holy Justice or the Knights of the Merciful Sword. Such knights - as well as judges and priests, clerics and paladins who worship Tyr - sometimes wear thin bandages of transparent cloth over their eyes to remind others of the blindness of justice.
+
+## Tyr Rite
+>
+>![rite](https://fontmeme.com/temporary/428e2980e1cefdbca873809e73173dcd.png)
+>
+> # Common translation
+> ### Hail to the *One-armed God*!
+> 
+> ### Hail to Him whose name is *Honor*
+>
+> ### And whose Word is iron,
+>
+> ### Who alone never shirks the thankless task
+>
+> ### Whose reason is Lawful Necessity.
+>
+> ### Hail to the Lord of Swords Who gave a weapon-bearing hand
+>
+> ### To see that what must be done was done in truth.
+>
+> ### Hail God of the sunset, last single ray of light
+>
+> ### Lord of loyal morality, whose name none takes in vain.
+>
+> ### Now must I face loss to do what is right,
+>
+> ### O Lord Tyr, and I do not ask for your aid
+>
+> ### To take away that loss, that I might hope for ease of action.
+>
+> ### As you stood forth knowing you must lose to win,
+>
+> ### So I ask only that you keep my back straight,
+>
+> ### My arm strong, my hand from trembling,
+>
+> ### My voice from faltering, my words from vanishing,
+>
+> ### My head up, and my resolve unyielding
+>
+> ### As I reach into the challenging maw of my own future.
+>
