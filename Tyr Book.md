@@ -94,3 +94,5 @@ ___
 >
 > ### As I reach into the challenging maw of my own future.
 >
+
+![signature](https://fontmeme.com/temporary/f1ef45fdba6c7b531ae2800c61db640f.png)
